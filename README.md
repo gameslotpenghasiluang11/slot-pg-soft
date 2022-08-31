@@ -3,9 +3,9 @@
 <details open><summary><b>Show / Hide Ads</b></summary>
 
 # [Trik Menang Info Free Slot Pg Soft Yang Mudah Menang](https://atom.io/packages/slot-pg-soft)
-## :ok_hand: klik untuk [Mulai Deposit Sekarang](https://agentotoplay.net/promo/) :fire: <<< 
-## :pushpin: klik untuk [Mulai Deposit Sekarang](https://agentotoplay.net/promo/) :snowflake: <<< 
-## :point_right: klik untuk [Dapatkan Promo Anda Hari Ini](https://agentotoplay.net/) :ok_hand: <<< 
+## :ok_hand: klik untuk [Mulai Deposit Sekarang](https://golinkurl.github.io/promo/) :fire: <<< 
+## :pushpin: klik untuk [Mulai Deposit Sekarang](https://golinkurl.github.io/promo/) :snowflake: <<< 
+## :point_right: klik untuk [Dapatkan Promo Anda Hari Ini](https://golinkurl.github.io/) :ok_hand: <<< 
 
 ## Informasi Situs /Server Kami : 
 
